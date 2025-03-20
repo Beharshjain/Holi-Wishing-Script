@@ -1,5 +1,3 @@
-Create & Share Colorful Holi Greetings Online!
-
 This Holi Wishing Script lets users generate and share personalized Holi greetings with animations, colors, and effects! Perfect for bloggers, website owners, and marketers looking to drive massive traffic during Holi 2025.
 
 🚀 Features:
